@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me ---
-- 😄 Pronouns: War Helicopter/ 2 headed penguin
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I shoot my shot like im KOBE
 
 <!---
